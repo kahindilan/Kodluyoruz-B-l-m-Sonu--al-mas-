@@ -1,2 +1,2 @@
-# Kodluyoruz-B-l-m-Sonu--al-mas-
+# Kodluyoruz-Bolum-Sonu-Calimasi
 Kodluyoruz Bölüm Sonu Çalışması
